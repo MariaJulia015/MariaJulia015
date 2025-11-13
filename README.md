@@ -21,4 +21,5 @@ Meu objetivo é aplicar e expandir meus conhecimentos na área de tecnologia, co
 
 Como me encontrar:
 E-mail: mariajulia.teo15@gmail.com
+
 LinkedIn: https://www.linkedin.com/in/maria-julia-costa-teodoro/
